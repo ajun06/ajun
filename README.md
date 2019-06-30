@@ -1,0 +1,2 @@
+# ajun
+Ski ganteng
